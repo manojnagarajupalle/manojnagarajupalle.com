@@ -1,1 +1,1 @@
-# manojnagarajupalle.github.io
+# manojnagarajupalle.com
